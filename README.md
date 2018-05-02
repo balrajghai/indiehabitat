@@ -2,17 +2,13 @@
 
 **For more details - follow us on:**
 
-**Facebook:** https://www.facebook.com/indiehabitat
+[**Facebook**](https://www.facebook.com/indiehabitat) | [**Instagram**](https://www.instagram.com/indiehabitat) | [**Twitter**](https://www.twitter.com/indiehabitat)
 
-**Instagram:** https://www.instagram.com/indiehabitat
+Watch **videos** from our Open Mics [Here](https://bit.ly/thsvideo)
 
-**Twitter:** https://www.twitter.com/indiehabitat
+To [**book tickets**](https://bit.ly/thehabitatbms) to **STANDUP COMEDY** shows
 
-Watch **videos** from our Open Mics Here: https://bit.ly/thsvideo
-
-To **book tickets** to **STANDUP COMEDY** shows: https://bit.ly/thehabitatbms
-
-**Google Map Link:** https://g.co/kgs/nqZTsr 
+[**Google Map Link**](https://g.co/kgs/nqZTsr) 
 
 **Address:** 1st and 4th Floor, Hotel Unicontinental, Road Number 3, Khar West, Mumbai, Maharashtra 400052
 
