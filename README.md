@@ -1,1 +1,3 @@
 # indiehabitat
+
+Preparing for Open Mics....
