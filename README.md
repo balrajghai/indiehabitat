@@ -17,3 +17,9 @@ To [**book tickets**](https://bit.ly/thehabitatbms) to **STANDUP COMEDY** shows
 **Call us for more details:** +919833358490
 
 Drop us an email at reachthehabitat@gmail.com
+
+**The concept of The Habitat** is as simple as being a home for all performers.
+A home that has everything available to make it comfortable for all to create, experiment, test out their work, re-work, record and be able to present in an environment that is receptive and welcoming.
+A home that promotes collaboration between Artists, Performers, Musicians, Stand Up Comedians, Poets, Theatrical Acts, Technicians to create the most conducive environment for growth and learning along with mutually beneficial encounters.
+In short - collaboration that generates good vibes.
+A great atmosphere like that coupled with foodgasm inducing comfort food that will keep anyone mesmerised, enthralled.
