@@ -1,12 +1,3 @@
-<script async src="//pagead2.googlesyndication.com/pagead/js/adsbygoogle.js"></script>
-<script>
-     (adsbygoogle = window.adsbygoogle || []).push({
-          google_ad_client: "ca-pub-2230706036309630",
-          enable_page_level_ads: true
-     });
-</script>
-
-
 # Welcome to The Habitat - Comedy and Music Cafe | Above The Habitat | The Habitat Studios
 
 We're a home for Open Mics for Poetry, Standup Comedy, Music, Improv Comedy, Indie Movie Screenings, Theatre and Events.
